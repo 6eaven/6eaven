@@ -20,7 +20,7 @@
 <br> 
 
   
-[_sign ata_](https://fyolai.atabook.org)⠀⠀⠀⠀[_<3_](https://FYODORISLIFEANDALIVEEEEE.com)
+[_sign ata_](https://fyolai.atabook.org)⠀⠀⠀⠀[_sang_](https://github.com/directoryuser1)
 
 <p align="center"><img src="https://64.media.tumblr.com/7806a5165fb150808064e7042648712c/b15d23a765658ea4-df/s1280x1920/a913b10f3504526e9cff1da8b2d21c375c0b649b.pnj">
 
