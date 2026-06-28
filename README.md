@@ -1,5 +1,5 @@
 <div align="center">
-   <p align="center"><img src="https://i.ibb.co/Qjds3cx0/4903897cd6acb3aac22fffa45623ae52-removebg-preview.png">
+   <p align="center"><img src="https://i.ibb.co/Qjds3cx0/4903897cd6acb3aac22fffa45623ae52-removebg-preview.png" width="400" height="150">
 
 
    <p align="center"><img src="https://i.ibb.co/wZjfh044/aa72e16b59188cbcce7ffd277c5229e4.gif" width="250" height="250">
@@ -17,7 +17,7 @@
 
   </div>
 <p align="center"><img src="https://i.ibb.co/MkTzTZB0/491127a27eda492d2093f938e7637f46.gif">
-<br> 
+ 
 
   
 [_sign ata_](https://fyolai.atabook.org)⠀⠀⠀⠀[_sang_](https://github.com/directoryuser1)
