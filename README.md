@@ -16,7 +16,7 @@
 </p>
 
   </div>
-<p align="center"><img src="https://i.ibb.co/60NpQ7qS/6e6e398745e0cd93ed020781cf3bdbee.gif" width="500" height="500">
+<p align="center"><img src="https://i.ibb.co/MkTzTZB0/491127a27eda492d2093f938e7637f46.gif">
 <br> 
 
   
